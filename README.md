@@ -1,1 +1,0 @@
-# RPGMaker_practice
